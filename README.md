@@ -146,3 +146,12 @@ Done
 Also, a note for more permanent staff: we think you're awesome, and we'd love for you to stick around forever, but we know that you may have bigger plans, and you know that these kinds of positions are always dependent on sufficient funding being maintained in the labs. We want you to get where you want to go, so you shouldn't worry about sharing goals with us that involve you leaving at some point. Of course it's totally understandable if you don't want to tell us about this (or if you never want to leave), but just know that we'll be supportive of whatever you're trying to do
 
 
+
+
+__Henry Senyondo, Annual self self-assessment (Spring 2016 accomplishments)__
+
+[]
+
+__Henry Senyondo, Annual self self-assessment (Spring 2017)__
+
+[]
